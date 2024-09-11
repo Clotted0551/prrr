@@ -18,3 +18,7 @@
 비스트 - 비가 오는 날엔   
 <img src="https://cdnimg.melon.co.kr/cm/album/images/012/72/951/1272951_500.jpg/melon/resize/282/quality/80/optimize">   
 MELON LINK: https://www.melon.com/song/detail.htm?songId=3397448
+
+
+4. 장수현 정보통신공학과
+롤티어는.. 골드 ㅋ
